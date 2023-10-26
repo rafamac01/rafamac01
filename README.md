@@ -10,3 +10,6 @@ Meu nome é Raraelly Machado
 ### Voce pode entrar em contato comigo 📫
 
 m.rafaelly@escola.pr.gov.br
+
+
+![](https://media.tenor.com/eAUe8lKjTh8AAAAC/boa-noite.gif)
